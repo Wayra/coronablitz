@@ -1,4 +1,4 @@
 #CoronaBlitz Entries
 
-##Corona Blitz #2
-###CATARRGH!
+Corona Blitz #2:
+CATARRGH!
